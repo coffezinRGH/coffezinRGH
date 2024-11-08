@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a lot of matters... it's overcharging me, being real.
 - 💞️ I’m looking to collaborate on a friendship 
 - 📫 Do NOT reach me ...
-- 😄 Pronouns: idk
+- 😄 Pronouns: i/er 
 - ⚡ Fun fact: i'm brazilian. And we don't eat only bananas
 <!---
 coffezinRGH/coffezinRGH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
